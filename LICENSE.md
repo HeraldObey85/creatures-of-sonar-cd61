@@ -1,4 +1,4 @@
-#  
+#  elite Script for creatures of sonaria offers the most advanced creatures of sonaria Script, with anti-ban and auto-heal. Perfect for dominating any
 
 
 
